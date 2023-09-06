@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @BlirayT-nine 
 - 👀 I’m interested in digital marketing 
 - 🌱 I’m currently learning information communication technology 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ICT Field and digital marketing ...
 - 📫 How to reach me on whatapp +09169030128
 
 <!---
